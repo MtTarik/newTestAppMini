@@ -1,0 +1,2 @@
+***HI**# newTestAppMini
+ждл# newTestAppMini
